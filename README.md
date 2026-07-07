@@ -1,2 +1,4 @@
 # ValeriaG
-Hi there
+Hi Vale 
+how are you
+
